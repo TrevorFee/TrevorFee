@@ -1,6 +1,6 @@
 # Welcome to Trevor Fee's profile! ⚡ 
 
-I'm a recent graduate starting with an Associates Degree in Computer Software .
+I'm a recent graduate from MECC with an Associates Degree in Computer Software.
 
 
 
