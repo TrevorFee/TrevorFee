@@ -1,4 +1,4 @@
-# Welcome to Trevor Fee's Github Profile! ⚡ 
+# Welcome to Trevor Fee's Profile!  
 
 **`Digital Craftsman (Developer/Creator)`**
 
