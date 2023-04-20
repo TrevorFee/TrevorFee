@@ -1,6 +1,6 @@
 # Welcome to Trevor Fee's profile! ⚡ 
 
-**'Digital Craftsman (Developer/Creator)'**
+**`Digital Craftsman (Developer/Creator)`**
 
 I'm a recent graduate from MECC with an Associates Degree in Computer Software.
 
